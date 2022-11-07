@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @AkHiL-1509
-- It's just my alt, acc xD
+- It's just my alt acc xD
